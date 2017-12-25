@@ -6,8 +6,8 @@
 Email me at www.kiranpoudel.com.np
 
 
-Edit:
-Website: www.kiranpoudel.com.np
 
+Website: www.kiranpoudel.com.np
+Last Edited by krnpoudel25@gmail.com
 
 
